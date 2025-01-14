@@ -71,13 +71,13 @@ Apps like **Fetch Rewards** and **FeaturePoints** let you accumulate points for 
 
 ---
 
-### Top 5 Websites to Claim Free Amazon Gift Cards
-[
-1. [Swagbucks](https://www.swagbucks.com)
-2. [Rakuten](https://www.rakuten.com)
-3. [InboxDollars](https://www.inboxdollars.com)
-4. [Fetch Rewards](https://www.fetchrewards.com)
-5. [Ibotta](https://www.ibotta.com)](https://sthcodes.com/all-gift-card/)
+### Reference Websites
+
+1. [Swagbucks](https://sthcodes.com/all-gift-card/)
+2. [Rakuten](https://sthcodes.com/all-gift-card/)
+3. [InboxDollars](https://sthcodes.com/all-gift-card/)
+4. [Fetch Rewards](https://sthcodes.com/all-gift-card/)
+5. [Ibotta](https://sthcodes.com/all-gift-card/)
 
 These websites are user-friendly and have been verified for authenticity, offering users safe ways to earn rewards.
 
